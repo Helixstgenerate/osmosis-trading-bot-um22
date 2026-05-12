@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with osmosis trading bot quantitative Bot - token-swapping and blockchain-scanning, the #1 osmosis trading bot. Includes token-swapping and
 
 
 
